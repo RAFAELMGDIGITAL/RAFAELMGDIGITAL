@@ -1,6 +1,6 @@
 - 👋 Olá, sou @RAFAELMGDIGITAL
 - 👀 Estou interessado em ensinar vocês a ganhar dinheiro pela internet
-- 🌱 Atualmente estou aprendendo sobr MARKETING DIGITAL
+- 🌱 Atualmente estou aprendendo sobre MARKETING DIGITAL
 - 💞️ Estou procurando colaborar em ensinar as pessoas
   
 
